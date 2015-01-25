@@ -1,34 +1,31 @@
-I feel the best way to give you information about the “Mormon” church that Howard joined is to quote the Articles of Faith, which should give you an idea of the origin and beliefs of that religion.
+> I feel the best way to give you information about the “Mormon” church that Howard joined is to quote the Articles of Faith, which should give you an idea of the origin and beliefs of that religion.
 
 
 #The Articles of Faith of the Church of Jesus Christ of Latter-day Saints
 
 1	We believe in God, the Eternal Father, and in his son, Jesus Christ, and in the Holy Ghost.
 
-2	We Believe That men Will be Punished for Their own Sins, and not for Adam’s Transgression.
+2	We believe that men will be punished for their own sins, and not for Adam’s transgression.
 
-3	WE BELIEVE THAT THROUGH THE ATONEMENT OF CHRIST, ALL MANKIND MAY BE SAVED, BY OBEDIENCE TO THE LAWS AND ORDINANCES OF THE GOSPEL.
+3	We believe that through the atonement of christ, all mankind may be saved, by obedience to the laws and ordinances of the gospel.
 
-4	WE BELIEVE THAT THE FIRST PRINCIPLES AND ORDINANCES OF THE GOSPEL ARE: FIRST, FAITH IN THE LORD JESUS CHRIST; SECOND, REPENTANCE; THIRD, BAPTISM BY IMMERSION FOR THE REMISSION OF SINS; FOURTH, LAYING ON OF HANDS FOR THE GIFT OF THE HOLY GHOST.
+4	We believe that the first principles and ordinances of the gospel are: first, faith in the lord jesus christ; second, repentance; third, baptism by immersion for the remission of sins; fourth, laying on of hands for the gift of the holy ghost.
 
-5	WE BELIEVE THAT A MAN MUST BE CALLED OF GOD, BY PROPHECY, AND BY THE LAYING ON OF HANDS, BY THOSE WHO ARE IN AUTHORITY TO PREACH THE GOSPEL AND ADMINISTER IN THE ORDINANCES THEREOF.
+5	We believe that a man must be called of god, by prophecy, and by the laying on of hands, by those who are in authority to preach the gospel and administer in the ordinances thereof.
 
-6	WE BELIEVE IN THE SAME ORGANIZATION THAT EXISTED IN THE PRIMITIVE CHURCH, VIZ., APOSTLES, PROPHETS, PASTORS, TEACHERS, EVANGELISTS, ETC.
+6	We believe in the same organization that existed in the primitive church, viz., apostles, prophets, pastors, teachers, evangelists, etc.
 
-7	WE BELIEVE IN THE GIFT OF TONGUES, PROPHECY, REVELATION, VISIONS, HEALING, INTERPRETATION OF TONGUES, ETC.
+7	We believe in the gift of tongues, prophecy, revelation, visions, healing, interpretation of tongues, etc.
 
-8	WE BELIEVE THE BIBLE TO BE THE WORD OF GOD AS FAR AS IT IS TRANSLATED CORRECTLY; WE ALSO BELIEVE THE BOOK OF MORMON TO BE THE WORD OF GOD.
+8	We believe the bible to be the word of god as far as it is translated correctly; we also believe the book of mormon to be the word of god.
 
-9	WE BELIEVE ALL THAT GOD HAS REVEALED, ALL THAT HE DOES NOW REVEAL, AND WE BELIEVE THAT HE WILL YET REVEAL MANY GREAT AND IMPORTANT THINGS PERTAINING TO THE KINGDOM OF GOD.
+9	We believe all that god has revealed, all that he does now reveal, and we believe that he will yet reveal many great and important things pertaining to the kingdom of god.
 
-10	WE BELIEVE IN THE LITERAL GATHERING OF ISRAEL AND IN THE RESTORATION OF THE TEN TRIBES; THAT ZION WILL BE BUILT UPON THIS [THE AMERICAN] CONTINENT; THAT CHRIST WILL REIGN PERSONALLY UPON THE EARTH; AND, THAT THE EARTH WILL BE RENEWED AND RECEIVE ITS PARADISIACAL GLORY.
+10	We believe in the literal gathering of israel and in the restoration of the ten tribes; that zion will be built upon this [the american] continent; that christ will reign personally upon the earth; and, that the earth will be renewed and receive its paradisiacal glory.
 
-11	WE CLAIM THE PRIVILEGE OF WORSHIPING ALMIGHTY GOD ACCORDING TO THE DICTATES OF OUR OWN CONSCIENCE, AND ALLOW ALL MEN THE SAME PRIVILEGE, LET THEM WORSHIP HOW, WHERE, OR WHAT THEY MAY. 	
+11	We claim the privilege of worshiping almighty god according to the dictates of our own conscience, and allow all men the same privilege, let them worship how, where, or what they may. 	
 
-12	WE BELIEVE IN BEING SUBJECT TO KINGS, PRESIDENTS, RULERS, AND MAGISTRATES, IN OBEYING, HONORING, AND SUSTAINING THE LAW.
+12	We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.
 
-13	WE BELIEVE IN BEING HONEST, TRUE, CHASTE, BENEVOLENT, VIRTUOUS, AND IN DOING GOOD TO ALL MEN; INDEED, WE MAY SAY THAT WE FOLLOW THE ADMONITION OF PAUL-WE BELIEVE ALL
- 
-THINGS, WE HOPE ALL THINGS, WE HAVE ENDURED MANY THINGS, AND HOPE TO BE ABLE TO ENDURE ALL THINGS. IF THERE IS ANYTHING VIRTUOUS, LOVELY, OR OF GOOD REPORT OR PRAISEWORTHY, WE SEEK AFTER THESE THINGS.
-
-(JOSEPH SMITH).
+13	We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men; indeed, we may say that we follow the admonition of paul--
+(Joseph Smith).
