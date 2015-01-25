@@ -1,4 +1,4 @@
-UNKNOWN AND RACHEL ( WILCOXSON) MYLAR
+Unknown and Rachel (Wilcoxson) Mylar
 
 The last name could have been spelled Milar or Mylar. There was a Mylar in Pennsylvania in 1700 development of Kentucky. One story is that he worked on the “Wilderness Trail” which ran from South Carolina to Kentucky. At a later date it is believed he was, also, a good friend of William Briant.
 
