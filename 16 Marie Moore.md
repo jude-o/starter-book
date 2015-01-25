@@ -1,4 +1,4 @@
-NOTES ON MY BEGINNINGS BY MARIE E. MOORE
+Notes on My Beginnings by Marie E. Moore
 
 My first recollections is living on a farm in Wayne County Indiana. This farm was situated on a road called Hunnicutt, named after the Hunnnicutt’s our next door neighbors. They owned a beautiful big house with a big fireplace in the living room made with a marble face and hearth.
 
