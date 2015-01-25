@@ -1,0 +1,36 @@
+#Andrew Jackson Smith , M.D.
+H U S B A N D O F L U L U H U D D L E S T O N
+
+In many respects the history of the life of the subject of this article is remarkable and extremely interesting.	It will be plainly apparent to the reader that he is a man of strong personality, having the courage of his convictions and daring to do what he believes to be right, under all circumstances.
+
+He is of German parentage. His ancestors spelling the family name Schmidt. He was born near Cape Hatteras, on board the good ship Kaiser Wilhelm, December 31, 1836, while his parents were on their way to the United States form the Fatherland. They settled upon a large plantation in McLean County, Kentucky, and the father who was a physician, and possessed great ability, became one of the prominent citizens of that community. He owned a numbers of slaves, and about the time of the trouble which was brewing between the north and the south over this disputed question, he sympathized with the south, and served his country as a member of congress, from the sixth congressional district of Kentucky. He died in 1876, when in his eighty-seventh year, his death being the result of an accident which he had sustained.	His wife, who died in 1894, lived to the advanced age of ninety-eight years.
+
+Strange as it appears, Dr. Andrew J. Smith was totally opposed to the principles of slavery from his boyhood, thought the sentiments of his family were at variance with his own. In his young days he assisted many a poor slave to make his escape by means of the “underground railway,” and finally his life was threatened so seriously that he concluded that “discretion is the better part of valor,” and he left home. Going to New Orleans, he entered the United States Navy as a sailor, and served for three years, a most eventful period in his life, as he visited many of the important ports of the world. He was in Japan at the time that Commodore Perry made the famous treaty of 1853. Prior to which year that nation had for centuries been closed to all commercial relations with other countries.
+
+Upon his return to Kentucky, his increasing sympathy for the slaves was too plainly evinced for his personal safety, and during the opening days of the war of the Rebellion, when sectional excitement was at its height, he tore down a confederate flag which had been raised in his neighborhood. For this exploit he was pursued and captured and probably would have been shot had he not managed to escape in disguise.
+
+Reaching Louisville, he crossed the Ohio river and enlisted as a private in Company F, Fifth Regiment of Kentucky Volunteers, being accredited to Butler County, Kentucky. This body of troops was better known as the Louisville Legion. Company F was commanded by Captain J.E. VanSant, and the regiment had Colonel L.H Rosseau at its’s head. Assigned to Rosseau’s brigade, McCook’s division of the twentieth Army Corps, which served in the army of the Cumberland, doing valiant service in many of the important battles and campaigns of the war.
+
+Among the numerous battles in which Dr. Smith participated were the following named: Bowling Green, February 15, 1862: Shiloh, April 6-7, 1862; and Stone River, December 31, 1862; Tullahoma, July 1, 1863: Chickamauga, September 19-20: Brown’s Ferry, October 27; Chattanooga, November 25; Mission Ridge and Blaines’ Cross Roads, December 16, 1863; Buzzards’ Roost February 25-27, 1864; Peach Tree Creek; Jonesboro; Rocky face Ridge, May 5-9, 1974; Resaca, May 13-17, 1864; and then in quick succession came Dallas, Kenesaw Mtn, Pine Mtn, Pine Knob, Golgotha, Lattimers, Mill’s Noonday creek, Prairie Springs and many others. In fact the fighting was almost continuous during many months of 1864, and in September of that year, by reason of the expiration his three years term of service, Dr. Smith was honorably discharged at Louisville, Kentucky.
+
+In January, 1865, however he re-enlisted, becoming a member of Company A, Fourth Regiment of the United State Veteran Infantry under the command of Captain Montgomery and Colonel Wood. He was soon promoted to a captaincy and served with his regiment, under General Phil Sheridan in the famous Shenandoah campaign. Subsequently he was sent with the regiment to Washington, and after the assassination of Lincoln they were assigned to guard the prison in which Payne, Spangler, Dr. Mudd and Mrs. Surratt, fellow conspirator of Booth were confined. Later they were detailed to accompany Dr. Mudd and Spangler to Tortugas Island where they were sentenced to imprisonment and returning to Washington, the regiment witnessed the execution of the other assassins.
+
+In 1861, Dr. Smith graduated in the Kentucky School of Medicine, and at the battle of Shiloh he was detailed as assistant surgeon in the field hospital. In the fall of 1865, he was examined and appointed assistant surgeon in the United States Army, being assigned to duty with the Fifth Regiment of the United States Cavalry, a position he filled, with great credit, for five years. During the war, he was wounded several times, once at Stone River, the last day of 1862, and at Mission Ridge, Liberty Gap and Kenesaw Mountain. He still carries some Confederate lead in his body, and has never fully recovered from his honorable wounds.
+
+In 1870 Dr. Smith established an office for practice in Tell City, Indiana, where he remained for twelve years; in the meantime taking a course in the Eclectic Medical Institute, at Cincinnati, where he graduated in 1872. In 1882 he removed to Indianapolis, a wider field of action, and there was successfully engaged in the practice for nine years, during which period he pursued a course of study and was graduated in the Central College of Physicians and Surgeons at Indianapolis in 1886.
+
+Since 1891 he has been a resident of Metamora Indiana, where he enjoys a fine practice, and has won a well merited place among the leading members of his profession in this section of the state. He is considered an authority on medical jurisprudence and in September 1889, prepared and read before the Franklin County Medical Society an original article on “Expert Testimony,” which has commanded wide attention and favorable comment.
+
+On the 30th of September, 1889, Dr. Smith married Miss Lulu Huddleston, who’s father, Samuel Huddleston was a member of the Indiana 84th Regiment during the war of the Rebellion, and now is a citizen of Dublin, Indiana. The Doctor and wife have two promising sons: Adkison John and Noble Gordon Smith. Some time ago, Mrs. Smith took a regular course of medical study and training and since then has been associated with her husband in practice rendering him invaluable assistance. They have legions of Friends in various parts of this and other states.
+
+
+
+Historical and Biographical History of Wayne, Fayette,	Union and Franklin Counties, Indiana Lewis Publishing	1899	Pg. 635	Researched by Sharon Ogzewalla August 2003
+ 
+ 
+
+
+
+Back row: L-R John Smith, holding Margaret, Estel Smith, Gordon Smith, Harold Smith, Edgar Huddleston, Clara Huddleston
+
+Front row: L-R Lula Smith, Andrew J. Smith holding Lula Huddleston, Editha Huddleston, Samuel Huddleston, Sarah Huddleston, holding Ruth Huddleston April 1912 Dublin, Indiana

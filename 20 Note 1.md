@@ -1,0 +1,13 @@
+
+Editor’s note: #1
+Unfortunately; In 1976 Debie and Grandma decided to flee to a more peaceful environment.	Despite the wonderful productive life that Howard has painted in his autobiography, there were many problems associated with living with him. Those who lived with him could rightfully call him difficult, demanding and tyrannical.
+Age compounded all those characteristics and made it even more difficult to reason with him.	Debie and Marie left him for many reasons and that is their story to tell. The reader may notice that Howard only talks of himself and his accomplishments and barely mentions his wife and children or the home environment.
+
+
+It may be shocking for some to realize that Howard and Marie were married for 54 years and then divorced.	It is not a surprise to also notice in my research that there were a few other couples who also divorced.
+Johnathan Huddleston had a similar temperament to Howard’s and he and his wife were not living together in
+their later years. I did not search for divorce papers, but they each were living with different family members in the 1860 census record.	I also found that Andrew and Jane Moore, parents of Samuel Moore, our great grandfather were not living in the same household in their later years and they did get a divorce.	Orpha Craig Moore, Marie’s mother, also was divorced and Samuel was her second husband.
+
+Family life is frought with problems and if husbands and wives do not cherish each other and love and nurture their children then this is often the consequence. Families can bring us the greatest joy in life or the greatest sorrow.	How we conduct our lives has an impact on not just us, but family members and indeed generations. Howard valued Christianity in his life, he just did not know how to implement it in his relationships.	When we do not make it an effort to practice these Christian values in our relationships with family members, where they are most needed, then it opens the door for chaos, insecurity for our children and desperate measures to separate ourselves from the abuser. It has not been my focus in compiling this family information to dwell on the negative aspects of people’s lives, but to show the examples of faithfulness that we are descended from and to encourage future generations to learn from their ancestors, know that you are loved, and your life matters- especially how you choose to live your life because it will impact your descendants as well.	I pray for each of you to have courage as you go forward, knowing there are others on the other side who are also praying for you and your success.
+Love, Sharon
+September, 2008
