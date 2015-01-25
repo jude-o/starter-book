@@ -7,9 +7,9 @@
 
 2.	We believe that men will be punished for their own sins, and not for Adam’s transgression.
 
-3.	We believe that through the atonement of christ, all mankind may be saved, by obedience to the laws and ordinances of the gospel.
+3.	We believe that through the atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the gospel.
 
-4.	We believe that the first principles and ordinances of the gospel are: first, faith in the lord jesus christ; second, repentance; third, baptism by immersion for the remission of sins; fourth, laying on of hands for the gift of the holy ghost.
+4.	We believe that the first principles and ordinances of the gospel are: first, faith in the lord Jesus Christ; second, repentance; third, baptism by immersion for the remission of sins; fourth, laying on of hands for the gift of the holy ghost.
 
 5.	We believe that a man must be called of god, by prophecy, and by the laying on of hands, by those who are in authority to preach the gospel and administer in the ordinances thereof.
 
@@ -17,11 +17,11 @@
 
 7.	We believe in the gift of tongues, prophecy, revelation, visions, healing, interpretation of tongues, etc.
 
-8.	We believe the bible to be the word of god as far as it is translated correctly; we also believe the book of mormon to be the word of god.
+8.	We believe the bible to be the word of god as far as it is translated correctly; we also believe The Book of Mormon to be the word of god.
 
 9.	We believe all that god has revealed, all that he does now reveal, and we believe that he will yet reveal many great and important things pertaining to the kingdom of god.
 
-10.	We believe in the literal gathering of israel and in the restoration of the ten tribes; that zion will be built upon this [the american] continent; that christ will reign personally upon the earth; and, that the earth will be renewed and receive its paradisiacal glory.
+10.	We believe in the literal gathering of Israel and in the restoration of the ten tribes; that Zion will be built upon this [the american] continent; that Christ will reign personally upon the earth; and, that the earth will be renewed and receive its paradisiacal glory.
 
 11.	We claim the privilege of worshiping almighty god according to the dictates of our own conscience, and allow all men the same privilege, let them worship how, where, or what they may. 	
 
