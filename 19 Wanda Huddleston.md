@@ -1,6 +1,4 @@
-WANDA MAE HUDDLESTON MALONEY
-
-
+Wanda Mae Huddleston Maloney
 
 Wanda Mae Huddleston was born 21 August, 1928 in Cambridge City, Indiana to Howard Norman Huddleston and Marie Moore. Wanda was the 4th of 14 children born to her parents.	She is survived by her sisters; Dorothy Centers, Mary Rhodus, of Cambridge City, Deborah Gorman of Pinellas Park, Florida and Beulah Rogers of Florida. And two brothers; Richard Huddleston of Richmond,Indiana and Howard M. Huddleston of Cambridge City, Indiana.
 
@@ -8,7 +6,7 @@ Wanda met her husband Taylor H. Maloney in Cambridge City, Indiana shortly after
 
 Wanda and Taylor have ten children, 32 grandchildren and 31 great grandchildren. The children include Linda Newton, Tracie Spahn, Chris Kramer, Kathy Bartley all of Cincinnati, Sharon Ogzewalla, Denver, Colorado, John & Robert Maloney of Cincinnati and David & Jim Maloney of Florida and Mark Maloney of Broadhead, Kentucky.
 
-Wanda was a woman of many talents who shared them generously she did home improvements of all kinds; knocking out walls, framing new walls, cement work (front steps, patio) tile,constructing bookcases, & woodworkingprojects. In her later years she spent many hours doing woodworking crafts which she gave to her children and grandchildren.
+Wanda was a woman of many talents who shared them generously she did home improvements of all kinds; knocking out walls, framing new walls, cement work (front steps, patio) tile,constructing bookcases, & woodworking projects. In her later years she spent many hours doing woodworking crafts which she gave to her children and grandchildren.
 
 Most of Wanda's time was spent in the home with her children, occasionally taking small jobs to help out financially.	She has been a crossing guard and a day care provider for many children.
 
@@ -30,11 +28,15 @@ S E R V I C E P L A N S - W A N D A M A L O N E Y
 Family Processional: CD: One Day at a Time (Christy Lane) Opening Welcome and Brief Word of Comfort: Pastor Tim
 Personal Reflections and Scripture: Pastor Harrison
 Song: Sharon Esche: There is a Rose
-Howard Huddleston: Personal Remarks (brother of Wanda) Congregational Song: The Old Rugged Cross
+Howard Huddleston: Personal Remarks (brother of Wanda) 
+Congregational Song: The Old Rugged Cross
 Tribute to Wanda and Taylor written by Mark Span, read by Sharon
-Song: CD ""I Can Only Imagine" (PowerPoint Photos] of Wanda) Reflections on the Life of Wanda Maloney: Pastor Tim
+Song: CD ""I Can Only Imagine" (PowerPoint Photos] of Wanda Reflections on the Life of Wanda Maloney: Pastor Tim
 Song: There is a Savior - solo by Pastor Melissa
-Message: Pastor Tim '"Torn Between the Two" Congregational Song: I'll Fly Away Benediction Recessional:
+Message: Pastor Tim '"Torn Between the Two" 
+Congregational Song: I'll Fly Away 
+Benediction 
+Recessional:
 
 GRAVESIDE: Dedication - Bob Maloney
  
@@ -101,11 +103,6 @@ by Mark Spahn
 One day in spring when our eyes met Words didn't need to be spoken
 A union was planned by God
 And our vows were never to be broken
-
-
- 
-
-
 -..
  
 There were to be many hard times And many burdens would test our love
@@ -137,13 +134,11 @@ nand done
 In Indiana on August 21, 1928 Wanda Mae Huddleston was born. Her father was a professional artist. He provided for his family through his creative talent as a portrait painter. Wanda was one of thirteen children in her family.
 
 I've been told that Wanda was the first girl to deliver newspaper in her town. It was on her paper route that her life took a surprising turn. One of her patrons was the Maloney family. Young Taylor Hershel Maloney had just returned from the WWII as a staff Sergeant. He served our country in 7 major campaigns including Normandy's D Day. She was 18, he was 24. As the newspaper was being delivered one day he saw this beautiful young girl. He asked his parents who this enterprising girl was. Nearly a month passed and Taylor's father got sick. Taylor was asked to run the store. Wanda came into the store one day to trade for food.
-Taylor claims that he fell in love with her the first time they talked. They got briefly acquainted; he invited her to the fair. That must have been a very special fair because ten days later they were married. They were
-married by a preacher at his father's house.
-Taylor's oldest sister was married at the same time with them.
+Taylor claims that he fell in love with her the first time they talked. They got briefly acquainted; he invited her to the fair. That must have been a very special fair because ten days later they were married. They were married by a preacher at his father's house. Taylor's oldest sister was married at the same time with them.
 
 And, as they say, the rest is history. On August 31s' of this year they celebrated their 59th Anniversary.
 
-They soon began their family -. which eventually boasted 10 children, 32 grandchildren, and 31 great grandchildren.
+They soon began their family which eventually boasted 10 children, 32 grandchildren, and 31 great grandchildren.
 
 Wanda was always busy. She worked both in and out of the home. She was the primary care giver to the children, keeping the home clean and the kids nurtured, loved, and cared for.
 She was a crossing-guard for the neighborhood school, she delivered Newspapers, worked at the Election Polls, took in Ironing. She baby-sat eleven kids in her home, even after having 10 of her own.
@@ -155,17 +150,7 @@ Wanda was not your run-of-the-mill type of mother. How do I know? What other mot
 
 I can only imagine that after the breakfast dishes were cleared one could hear the buzz of the saw, chiseling out the shape of a horse or paddle-boat. Wanda made many gifts of love and skill and gave them to her family and friends. Cherish these things.
 
-The children of Wanda Maloney pretty much all agree that their mother was on mission to spoil their children. Oh, how did Wanda love her grandchildren and her great grandchildren! She would rise early to make her famous French Toast for breakfast for them. She would sneak snacks and cater in any way she could to her grandchildren. There was always a game available to play or a picture ready to be colored. She was always ready for a game of cards, Yatzee, 500 Rummy, Dominoes - Chicken Foot. Even when she was alone you could find her playing her hand held Yatzee game. SHE NEVER WAS IDLE.
-
- 
-
-
-
-
-
-
-
-pragmatic and practical.
+The children of Wanda Maloney pretty much all agree that their mother was on mission to spoil their children. Oh, how did Wanda love her grandchildren and her great grandchildren! She would rise early to make her famous French Toast for breakfast for them. She would sneak snacks and cater in any way she could to her grandchildren. There was always a game available to play or a picture ready to be colored. She was always ready for a game of cards, Yatzee, 500 Rummy, Dominoes - Chicken Foot. Even when she was alone you could find her playing her hand held Yatzee game. SHE NEVER WAS IDLE. pragmatic and practical.
  
 Wanda never saw a stranger. She would have conversations with anyone she met. Sometimes ",spilling the beans" of whatever was happening in her life. She always befriended everyone. She loved people.
 Wanda loved Lighthouses and Thomas Kincade paintings. Wanda was a strong woman who spoke her mind. She was a realist and very
@@ -195,8 +180,4 @@ My mother was seriously ill two months ago and I was called to come in case thes
 
 I did not realize until a few days later how this would impact my mother. She took note of the difference in how I observed Sunday. My mother had just had a miraculous recovery from a serious illness due to a priesthood blessing and I think she was realizing her neglectfulness in showing appreciation to the Lord for this blessing. After everyone had left and she and I had some quiet time to talk, she said to me- "I should have gone to church with you on Sunday." She did not say- I should have gone to the beach with my sisters where they had a fun day and enjoyed each other’s company, but I should have gone to church with you.	She saw a need to make changes in her life and made a commitment to do so, while I was there.	A standard had been noted. The spirit continues to testify to me how important it is for me to continue to keep my covenants to remember Him and to keep the Sabbath day holy and to be obedient to His commandments, for this is how we continue to remember and show our love to Him.”
 
-Deuteronomy 7:9
-
-Know therefore that the Lord thy God, he is God, the faithful God, which keepeth covenant and mercy with them that love him and keep his commandments to a thousand generations.
- 
-NOTES:
+> Know therefore that the Lord thy God, he is God, the faithful God, which keepeth covenant and mercy with them that love him and keep his commandments to a thousand generations. Deuteronomy 7:9
