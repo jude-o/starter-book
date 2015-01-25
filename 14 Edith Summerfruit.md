@@ -1,4 +1,4 @@
-#The early life of Edith Huddleston Summerfruit
+#The Early Life of Edith Huddleston Summerfruit
 
 I was born January 4th 1873. My father was in the civil war. He had charge of the commissary Department and fed the soldiers well. He was well educated. He had been an orator, and when young, was called upon in many public meeting places to recite the Declaration of Independence.
 
