@@ -1,5 +1,4 @@
-#THE LIFE HISTORY OF HOWARD N. HUDDLESTON
-
+#The Life History of Howard N. Huddleston
 
 Richmond, Indiana, was my birth place on June 18, 1902. I have no memory of anything previous than at the age of one year, my story therefore begins here. I was born far before the medical practice of Cesarean birth, and my mother, Edith Karen Cadwallader Huddleston, who was not over five feet tall and having small bone structure, was in labor with me for over three days. After my arrival, Dr. Blossom advised that I would have to be layed on my left side to live. My mother took this advice for she said she had gone back to the crib many times day and night.
 
