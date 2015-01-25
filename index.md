@@ -2,6 +2,8 @@
 
 All photos and cover designed by Sharon Ogzewalla
 
+![This is an image embed](images/image10.jpg)
+
 > *Deuteronomy 7:9*
 
 > Know therefore that the Lord thy God, he is God, the faithful God, which keepeth covenant and mercy with them that love him and keep his commandments to a thousand generations.
