@@ -1,7 +1,5 @@
-
-JESSE HUDDLESTON
-
-Written by his son Samuel
+#Jesse Huddleston
+_Written by his son Samuel_
 
 Jesse Huddleston & Edith Brown went into housekeeping in a neat little four roomed cottage that he had just built on a three acre tract of land his father had given him and where he had already commenced to establish himself in the fruit tree nursery business from which nearly all the early orchards and the general nursery stock of this pioneer section were started. Not long after his marriage Jesse Huddleston, full of enterprise and ambition for large success sold out in Dublin and located on the north side of the new National Road west of Cambridge City on land that is now occupied with buildings of the M.E. Parsonage, the residence of Frazier the green house of Mr. Thomas Peat and other residences in Cambridge city.
 

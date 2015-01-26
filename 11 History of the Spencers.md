@@ -1,10 +1,8 @@
 #History of the Spencers
+_Written by Samuel Huddleston_
 
-Written by Samuel Huddleston
 
-
-My wife’s father James Johnson was born at Portsmouth, Ohio, May 12th, 1819. When a young man he went to Helena, Ark. where he was converted and joined the Methodist Episcopal Church and not long afterwards he was licensed to preach. About this time Luzena, daughter of Rozel Spencer came with her parents from Lewisville, Henry Co., Indiana and settled at the same place. The Spencers were Methodists and Luzena was a young convert. James Johnson and Luzena Spencer were married May 12th, 1844 . To them two daughters were born: Sarah Elizabeth March 7, 1845 and Mary N. August 4, 1847. James S. Johnson died of Typhoid fever Sept. 19, 1847. Luzena’s father having died previously and her mother had returned to Indiana, she to, now a widow hastened to follow her by steamer to Cincinnati and from there to Liberty, Union
-Co., Indiana by public stage coach. Her baby died in her arms when she was nearing liberty.
+My wife’s father James Johnson was born at Portsmouth, Ohio, May 12th, 1819. When a young man he went to Helena, Ark. where he was converted and joined the Methodist Episcopal Church and not long afterwards he was licensed to preach. About this time Luzena, daughter of Rozel Spencer came with her parents from Lewisville, Henry Co., Indiana and settled at the same place. The Spencers were Methodists and Luzena was a young convert. James Johnson and Luzena Spencer were married May 12th, 1844 . To them two daughters were born: Sarah Elizabeth March 7, 1845 and Mary N. August 4, 1847. James S. Johnson died of Typhoid fever Sept. 19, 1847. Luzena’s father having died previously and her mother had returned to Indiana, she to, now a widow hastened to follow her by steamer to Cincinnati and from there to Liberty, Union Co., Indiana by public stage coach. Her baby died in her arms when she was nearing liberty.
 
 On Oct. 12, 1850 Mrs. Johnson married Stephan M. Harrell and at the time of my visit to the Harrell settlement in and near Fairfield they lived on a farm near that town. I took little notice of Miss Johnson at this time for I was paying attention to another girl, a member of my own church and we would have married if her people had not separated us on account of my poverty and their dislike for my mother. Then while I was in the Army fighting for the preservation of our dear old Flag I was induced by a dear lady cousin of my Mother that I first met at the time of my visit in this settlement persuaded me and Miss Johnson to enter into correspondence for pass time and this correspondence brought about our acquaintance which ripened into Matrimony and we were united in marriage on May 12, 1866 at the house of the brides mother at Blooming Grove, Ind.
 
@@ -20,9 +18,13 @@ Just prior to his death he completed an extensive history of the Huddleston fami
 
 The children of Samuel Brown and Sarah E. Huddleston are:
 
-Lula M. Huddleston, b. Feb. 11. 1866 at Blooming Grove. Franklin Co., Indiana Missouri Huddleston, b. Aug. 19, 1870, at Greensboro, Henry Co. Indiana Calvin Leroy Huddleston. b. Mar. 14, 1873 near Dublin, Indiana
-Walter M. Huddleston, b. Aug. 24, 1876 at Liston, Hendrick Co., Indiana Edgar Johnson Huddleston, b. Apr~ 25, 1881, at Dublin, Indiana Francis Elmer Huddleston, b. Nov. 2, 1882 at DI1blin, Indiana
-Orion S. Huddleston, b. July 24, 1665 at Dublin, Indiana
+* Lula M. Huddleston, b. Feb. 11. 1866 at Blooming Grove. Franklin Co., Indiana 
+* Missouri Huddleston, b. Aug. 19, 1870, at Greensboro, Henry Co. Indiana 
+* Calvin Leroy Huddleston. b. Mar. 14, 1873 near Dublin, Indiana
+* Walter M. Huddleston, b. Aug. 24, 1876 at Liston, Hendrick Co., Indiana 
+* Edgar Johnson Huddleston, b. Apr~ 25, 1881, at Dublin, Indiana 
+* Francis Elmer Huddleston, b. Nov. 2, 1882 at Dublin, Indiana
+* Orion S. Huddleston, b. July 24, 1665 at Dublin, Indiana
 
 
 Leah Huddleston researched and believes this to be the original house that Samuel lived in Dublin, Indiana
@@ -34,5 +36,5 @@ Front cover of the “Whispers of the Muses”
 Note cards found in the “Whispers of the Muses” a book of Poems by Samuel Huddleston
  
 
-From the Book of Poems”Whispers of the Muses” by Samuel Huddleston
+From the Book of Poems Whispers of the Muses” by Samuel Huddleston
  

@@ -1,4 +1,4 @@
-Wanda Mae Huddleston Maloney
+#Wanda Mae Huddleston Maloney
 
 Wanda Mae Huddleston was born 21 August, 1928 in Cambridge City, Indiana to Howard Norman Huddleston and Marie Moore. Wanda was the 4th of 14 children born to her parents.	She is survived by her sisters; Dorothy Centers, Mary Rhodus, of Cambridge City, Deborah Gorman of Pinellas Park, Florida and Beulah Rogers of Florida. And two brothers; Richard Huddleston of Richmond,Indiana and Howard M. Huddleston of Cambridge City, Indiana.
 
@@ -25,13 +25,16 @@ S E R V I C E P L A N S - W A N D A M A L O N E Y
 
 
 11:00 family taken into the Prayer Room
-Family Processional: CD: One Day at a Time (Christy Lane) Opening Welcome and Brief Word of Comfort: Pastor Tim
+Family Processional: CD: One Day at a Time (Christy Lane) 
+Opening Welcome and Brief Word of Comfort: Pastor Tim
 Personal Reflections and Scripture: Pastor Harrison
 Song: Sharon Esche: There is a Rose
 Howard Huddleston: Personal Remarks (brother of Wanda) 
 Congregational Song: The Old Rugged Cross
 Tribute to Wanda and Taylor written by Mark Span, read by Sharon
-Song: CD ""I Can Only Imagine" (PowerPoint Photos] of Wanda Reflections on the Life of Wanda Maloney: Pastor Tim
+Song: CD ""I Can Only Imagine" 
+PowerPoint Photos of Wanda 
+Reflections on the Life of Wanda Maloney: Pastor Tim
 Song: There is a Savior - solo by Pastor Melissa
 Message: Pastor Tim '"Torn Between the Two" 
 Congregational Song: I'll Fly Away 
@@ -40,7 +43,7 @@ Recessional:
 
 GRAVESIDE: Dedication - Bob Maloney
  
-EULOGY FOR WANDA
+##Eulogy for Wanda
 
 Oct 19 2005
 Delivered by Howard Murray Huddleston
@@ -76,15 +79,12 @@ Humble
 Wanda always gave help to others but was always quiet about it and never sought any recognition or even appreciation.
 
 Devoted to Family
-While Wanda and Taylor lived in Florida she had the coffee table piled with photo albums of her
-children and grandchildren.	They were her life.	She showed her love to all of us in very practical ways. Wanda was wise and a good listener.	She gave good advice to her children and grandchildren
-And prayed for all of them to live Godly lives.
+While Wanda and Taylor lived in Florida she had the coffee table piled with photo albums of her children and grandchildren.	They were her life.	She showed her love to all of us in very practical ways. Wanda was wise and a good listener. She gave good advice to her children and grandchildren And prayed for all of them to live Godly lives.
 
 
 Courageous & Strong
 Wanda truly showed us all how to be strong and courageous in difficult circumstances. She faced serious health problems for at least 20 years. In the past couple of years she was a real fighter and suffered painful treatments to survive.
  
-
 We have truly been blessed by God for having her as a sister, wife, mother, grandmother, and friend. We can use her example and honor her by living virtuous lives. This song expresses how I feel we should all live in the coming Days:
 "Be strong in the Lord, and be of good courage Your mighty Defender is always the same. Mount up with wings, as the eagle ascending Victory is sure when you call on His name.
 

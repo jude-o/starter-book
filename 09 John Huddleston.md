@@ -1,8 +1,6 @@
-
-JOHN HUDDLESTON
-B U I L D E R O F T H E H U D D L E S T O N H O U S E
-W R I T T E N B Y S A M U E L B R O W N H U D D L E S T O N ( 1 9 1 1 )
-
+# John Huddleston
+_Builder of the Huddleston House_
+Written by Samuel Brown Huddleston, 1911
 
 
 The Huddleston house has prominence in Cambridge City Indiana and is an historical landmark. I decided to include information about this house and it’s builder, John Huddleston, son of Johnathan & Phebe Huddleston. Even though we are not direct descendants of John. He is uncle to Samuel, who wrote this article.	It is important to have information about him and his family as this home is a living memory of our Huddleston heritage.
@@ -27,14 +25,7 @@ In 1844 John Huddleston hired a brick molder and made the brick for his new hous
 William Perry of Cambridge City took the lumber from the saw mill and dressed it by hand and put it into the building with no help except that of his own half grown boy, and the little help John Huddleston gave him in handling the heavy joists. A man who's name we have lost plastered the entire house for a horse valued at one hundred and twenty five dollars.
 
  
-
-
-
-
-
-
-
-ORIGINAL FURNISHINGS OF JOHN & SUSANNAH HUDDLESTON
+###Original Furnishings of John & Susannah Huddleston
  
 The barn was not a large one, but it was so conveniently arranged that it held a large quantity of feed above and twenty seven stalls for horses in the basement. Duets from the hay mow and corncrib brought the feed to the aisle between the two rows of stalls. There was ample room in the wagon yard and stable for the accommodation of the general travelers and movers, but the hundreds of emigrants that were pouring into western Indiana and Illinois from the time these building were erected until 1853 sometimes overtaxed, all the premises. Often more than one hundred moving families passed westward in a single day, besides the great number of freight wagoners, stages, horseback riders, and home teams that were upon the road.	Often mover's would pass in a continuous train of wagons as much as a mile long. A few times from twenty to forty families stopped at Huddleston's overnight, filling the wagon yard and roadsides near by with their wagons. John
 Huddleston did not keep a tavern, but he sold feed for the horses and oxen that passed. He also sold food for families to prepare for themselves and he sometimes fed people at his table. In crowded times, and in bad weather the people were given sleeping rooms in the basement rooms, on the floor of the wide, long porch on the south side of the house and sometimes they were crowded to the barn floor. Many people who had good rain proof wagon covers slept in their own wagons from choice, even in bad weather.

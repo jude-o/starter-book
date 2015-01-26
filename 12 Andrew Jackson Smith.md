@@ -1,5 +1,5 @@
 #Andrew Jackson Smith , M.D.
-H U S B A N D O F L U L U H U D D L E S T O N
+_Husband of Lulu Huddleston_
 
 In many respects the history of the life of the subject of this article is remarkable and extremely interesting.	It will be plainly apparent to the reader that he is a man of strong personality, having the courage of his convictions and daring to do what he believes to be right, under all circumstances.
 
@@ -23,12 +23,7 @@ Since 1891 he has been a resident of Metamora Indiana, where he enjoys a fine pr
 
 On the 30th of September, 1889, Dr. Smith married Miss Lulu Huddleston, who’s father, Samuel Huddleston was a member of the Indiana 84th Regiment during the war of the Rebellion, and now is a citizen of Dublin, Indiana. The Doctor and wife have two promising sons: Adkison John and Noble Gordon Smith. Some time ago, Mrs. Smith took a regular course of medical study and training and since then has been associated with her husband in practice rendering him invaluable assistance. They have legions of Friends in various parts of this and other states.
 
-
-
 Historical and Biographical History of Wayne, Fayette,	Union and Franklin Counties, Indiana Lewis Publishing	1899	Pg. 635	Researched by Sharon Ogzewalla August 2003
- 
- 
-
 
 
 Back row: L-R John Smith, holding Margaret, Estel Smith, Gordon Smith, Harold Smith, Edgar Huddleston, Clara Huddleston

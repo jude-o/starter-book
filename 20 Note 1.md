@@ -1,5 +1,5 @@
+# Editor’s note: #1
 
-Editor’s note: #1
 Unfortunately; In 1976 Debie and Grandma decided to flee to a more peaceful environment.	Despite the wonderful productive life that Howard has painted in his autobiography, there were many problems associated with living with him. Those who lived with him could rightfully call him difficult, demanding and tyrannical.
 Age compounded all those characteristics and made it even more difficult to reason with him.	Debie and Marie left him for many reasons and that is their story to tell. The reader may notice that Howard only talks of himself and his accomplishments and barely mentions his wife and children or the home environment.
 

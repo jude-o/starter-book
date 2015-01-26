@@ -4,14 +4,13 @@ I was born January 4th 1873. My father was in the civil war. He had charge of th
 
 He also impersonated Shakespeare plays. This is where I inherited my talent for acting. After the war, his trade was cabinet maker, finisher and sign painter. In those days, all such work was done by hand.
 
-EDITH
+##Edith
  
 My mother was a woman of 40 when she married my father. He was a widower with three children. My mother was educated in all the rudiments of music while she lived in the home of a German professor for four years. On her 18th birthday her
  
 father gave her a fine piano. It was a Knabe which was made in Baltimore. I still have that piano. Mother would never part with it under any circumstances. It is now 142 years old and will be left to my daughter, who is also a musician both in piano and violin. She has written several songs; both words and music. My mother was a wonderful woman. She never whipped or scolded me. She was always kind and loving. She taught me the right and wrong ways of life and I never disobeyed her counsel. She passed beyond at the age of 81. She was a wonderful, Christian example to me.
 
-MARTHA COX
- 
+##Martha Cox 
  
 The first Christmas I remember was before my third birthday. It was a different Christmas from the Christmas of these days. My brothers planned it all. They found a tree from the woods and strung popcorn on it. We hung a few candles shaped like slipper boots and an angel. There were wax candles tied onto the tree, which we had to blow out for fear of fire. On
 Christmas Eve, I was sitting on my father's lap in the next room warming my feet by an old fireplace when we heard a noise. "Listen," my father said, "I think I hear Santa's whistle." Then we heard it farther away. " I guess he's gone now, let's go in and see." I was thrilled at the sight. My faith in Santa Claus was established at this time. This simple child-like faith grew to a faith in God. A faith developed from not seeing, yet believing in his wondrous love and guidance through all the difficulties in life. (Hebrews 11:1 Now faith is the substance of things hoped for, the evidence of things not seen.)
@@ -19,7 +18,6 @@ Christmas Eve, I was sitting on my father's lap in the next room warming my feet
 I must give a few incidents of my child life to show that I was original in my ideas and my plan to carry them out. I remember at the age of five, my playmate took me to school to visit. On Friday they did recitations and when the teacher asked for volunteers I raised my hand to say, "I know a piece." "All right," she said, " Recite it, and I'll give you this big bouquet on my desk." I marched to the platform, put in plenty of gestures and expressions and got my bouquet. This was my first thrill of doing something important.
 
 When I started school, they sang a song to anyone late. It was " A Tardy Scholar Is Your Name." I lived but a square away from school; but I waited until I heard the last bell ring, and then I'd run to school. By the time I arrived they were all in their seats, so they sang me this song. I'd sing the second verse and act like I was crying. "That is just the way, you see, always making fun of me."
-
 
 When I was 9 years old, there was an announcement in the newspaper, about a lady to who was to speak at the Y.M.C.A. She was organizing a class in elocution, which was the name for dramatizations at that time. My mother took me to hear her. I was so interested, I wanted to speak to her, so I pulled at her dress as she passed my seat. She asked my mother, " What does your little girl want?" My mother was timid. "Oh," she said,
  

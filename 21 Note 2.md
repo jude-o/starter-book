@@ -1,7 +1,7 @@
 NOTE #2
 
-I include this Declaration in regards to the man who came to Howard about joining his polygamous community. The following is an official declaration made by President Wilford Woodruff in 1890 regarding polygamy. There were some members of the Church who were so committed to the practice that they refused to obey this declaration. Those members who were non compliant with this manifesto were then summarily
-ex-communicated from the Church and the Church has no affiliation with them whatsoever.	The earlier beliefs cause some confusion in today’s world, as many fundamentalists are practicing polygamy – they are in no way affliated with the Church of Jesus Christ of Latter Day Saints.
+_I include this Declaration in regards to the man who came to Howard about joining his polygamous community. The following is an official declaration made by President Wilford Woodruff in 1890 regarding polygamy. There were some members of the Church who were so committed to the practice that they refused to obey this declaration. Those members who were non compliant with this manifesto were then summarily
+ex-communicated from the Church and the Church has no affiliation with them whatsoever.	The earlier beliefs cause some confusion in today’s world, as many fundamentalists are practicing polygamy – they are in no way affliated with the Church of Jesus Christ of Latter Day Saints._
 
 #Official Declaration 1
 

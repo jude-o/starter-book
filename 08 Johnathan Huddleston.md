@@ -1,6 +1,5 @@
 ##Johnathan Huddleston
-
-(written by Samuel Huddleston)
+_written by Samuel Huddleston_
 
 
 Jonathan Huddlestone, the only son of Seth, was born in Massachusetts October 22, 1778. His sister, Levinah, said to the writer once when in conversation upon the subject of his name, that she knew that he was named for his uncle, Jonathan Fisher, whom they all loved, and not for his uncle, Jonathan Huddlestone, of whom they knew almost nothing.
